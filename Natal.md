@@ -1,4 +1,4 @@
-                          Natal e suas particularidades 
+                         Natal e suas particularidades 
 
 **Natal é que deixa o mês de dezembro mais alegre e presente nas nossas memórias.**
 
